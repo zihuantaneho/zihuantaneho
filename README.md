@@ -1,1 +1,1 @@
-## Hi, I develop my love to code
+## Hi, I keep developing — both code and my passion for it.
